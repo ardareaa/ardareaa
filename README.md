@@ -17,6 +17,7 @@ Amacım, yenilikçi ve kaliteli yazılım çözümleri üretmek ve sürekli olar
 
 - 👨‍💻 Website: https://viii.net.tr
 - 📫 İletişim: info@viii.net.tr
+- 📫 Ekstra: avs.ardareaa@gmail.com
   
 <br />
    
